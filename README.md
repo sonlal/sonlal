@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @sonlal
-- 👀 I’m interested in ... milf
 - 🌱 I’m currently learning ... physucs
 - 💞️ I’m looking to collaborate on ...idk
 - 📫 How to reach me ... @sonlal
